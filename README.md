@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @musicalchromesthesia
+- 👋 Hi, I’m @sheriahbutts04
 - 👀 I’m interested in singing, dancing,coloring,reading,playing piano
 - 🌱 I’m currently learning geometry,electromagnetic spectrum,financial literacy.
 - 💞️ I’m looking to collaborate on business management, computer technology.
